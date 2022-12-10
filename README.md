@@ -1,12 +1,21 @@
-:sweat_smile:
 
 # :grin: QUEM SOU EU?
-- 👋 EU sou joão. 
-- 👀 Trabalho em um mercado chamado Pontalão.:stuck_out_tongue_winking_eye:
+- 👋 eu sou joão. 
+- Moro em PONTAL DO SUL:earth_africa:
+# :kissing_closed_eyes: Competễncias e Habilidades 
+- criatividade 
+- colaboracão e trabalho de equipe 
+- comprometimento 
+# :sunglasses: Estou Aprendendo 
+- linguagem de programacão
+# :stuck_out_tongue_winking_eye: Meus Hobbies    
 - gosto de jogar bola :soccer::tongue:
-- moro em PONTAL DO PARANA:earth_americas:
-- quero entrar pro exército 
-- tenho uma familia muito legal tirando as briga:sweat_smile:KKKKK
-- 
+- gosto de andar de cavalo :horse:
+- gosto de ir a Praia  :ocean:
+# :smiley: Experiêcia Profissional ou Profissão do Futuros
+- 👀 Trabalho em um mercado chamado Pontalão.:stuck_out_tongue_winking_eye:
+-  quero entrar pro exército 
+# :iphone: Contatos
+- 41 9xx2-x29x:sleeping:
 
 
