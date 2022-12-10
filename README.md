@@ -1,3 +1,5 @@
+![51441195721-337e18ab5e-c](https://user-images.githubusercontent.com/118578433/206821483-22258348-1243-44ef-aff8-cbb7811aba1c.jpg)
+
 
 # :grin: QUEM SOU EU?
 - 👋 eu sou joão. 
